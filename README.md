@@ -1,16 +1,10 @@
-### Hi there 👋
+#Pedro R. Cauduro 🙅‍♂️ 
 
 
-**PedroRosaC/PedroRosaC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+#Pedrão 
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: @cauduropedro
-- 😄 Pronouns: he/his
-- ⚡ Fun fact: eu já caí no esgoto
--->
+- @cauduropedro 
+  he/his
+ pedro.prccau@gmail.com
+ Estudo no Colégio Técnioco Industrial de Santa Maria- UFSM
+ 
