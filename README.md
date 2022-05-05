@@ -4,7 +4,6 @@
 #Pedrão 
 
 - @cauduropedro 
-  he/his
- pedro.prccau@gmail.com
- Estudo no Colégio Técnioco Industrial de Santa Maria- UFSM
- 
+- pedro.prccau@gmail.com
+- he/his
+- Estudo no Colégio Técnioco Industrial de Santa Maria- UFSM
