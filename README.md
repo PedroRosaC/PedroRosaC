@@ -5,5 +5,5 @@
 
 - @cauduropedro 
 - pedro.prccau@gmail.com
-- he/his
+- he/him
 - Estudo no Colégio Técnioco Industrial de Santa Maria- UFSM
