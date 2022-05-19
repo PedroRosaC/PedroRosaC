@@ -1,20 +1,20 @@
-#Pedro R. Cauduro 🙅‍♂️ 
+# Pedro R. Cauduro 🙅‍♂️ 
 
 
-#Pedrão 
+# Pedrão 
 
-###Como me encontrar:
+### Como me encontrar:
 
 - 😃insta: @cauduropedro 
 - 😅email: pedro.prccau@gmail.com
 
-###Coisas sobre mim:
+### Coisas sobre mim:
 
 - 🙂pronomes: he/him
 - 📚Estudo no Colégio Técnioco Industrial de Santa Maria- UFSM
 - 📆aniver do pai: 02/03
 
-###Curiosidades sobre mim e etc:
+### Curiosidades sobre mim e etc:
 
 - 💀adoro Rock🤘 
 - 😘Sou o último romântico desta Terra (comprovado cientificamente)
@@ -22,20 +22,19 @@
 - 😰fato super triste(alerta de gatilho): eu já caí no esgoto😭😭😭
 - 🎥Meu filme favorito: Blade Runner 2049
 - 👀Animes que eu gosto: AOT, Demon slayer, JOJO's
-- 🪓Série favorita: VIKKINGS🪓
+- 🪓Série favorita: VIKINGS🪓
 - 👘 Luto jiu-jitsu
 - 🎮Jogo favorito: Horizon Zero Dawn
 - 🏀Esporte favorito: Basquete
 - ⭐✨Jojofag com orgulho
-![INÚTIL, INÚTIL,INÚTIL, INÚTIL](https://br.pinterest.com/pin/646055509044474253/)
 
-###Coisas que eu odeio😡😡:
+### Coisas que eu odeio😡😡:
 
 - Gente bonita que se acha feio(a)
 - Nanatsu no Taizai
 - Amendoim
 - Refrigerante
 
-###Coisas que eu AMO💕💕💖:
+### Coisas que eu AMO💕💕💖:
 
 - Você bb rs😉
