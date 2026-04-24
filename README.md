@@ -1,4 +1,4 @@
-# Pedro Rosa Cauduro 🙅‍♂️ 
+# Pedro Rosa Cauduro 
 
 
 
